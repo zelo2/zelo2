@@ -1,4 +1,4 @@
-![image](https://github.com/zelo2/zelo2/blob/main/Images/CC.png)
+![image](https://github.com/zelo2/zelo2/blob/main/Images/IMG_3521(20220111-080127).JPG)
 
 
 <!--
